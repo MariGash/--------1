@@ -8,8 +8,9 @@
 1. [Материалы и инструменты](#материалы-и-инструменты) 
 2. [Принципы составления флористических композиций](#принципы-составления-флористических-композиций)
 3. [Стили флористики](#стили-флористики)
-4. Букеты из искусственных цветов
-5. Букет из конфет
+4. [Букеты из искусственных цветов](https://tsvety-bukety.ru/kak-sdelat-iskusstvennyj-buket-svoimi-rukami?ysclid=lasmrb42ou313595453)
+5. [Букет из конфет](https://gidrukodeliya.ru/bukety-iz-konfet?ysclid=lasmu9q3nm823495756)
+6. [Букеты из сухих цветов](https://7dach.ru/MarinaGerasimenko/kak-ukrasit-svoy-dom-ispolzuya-zasushennye-listya-i-cvety-13161.html)
 6. Полезные советы
 
 ### **Материалы и инструменты**
